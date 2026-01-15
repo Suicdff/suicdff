@@ -1,1 +1,0 @@
-ossurdum:ACİK
